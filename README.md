@@ -1,1 +1,1 @@
-# fern.github.io-test
+This is fern.030 portfolio his original website (fern.wtf) is no longer working so i brought it back to life for fun
