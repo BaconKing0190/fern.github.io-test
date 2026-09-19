@@ -4,3 +4,7 @@ This is fern.030's portfolio his original website (fern.wtf) is no longer workin
 Fern's Roblox account https://www.roblox.com/users/1427869852/profile
 
 Fern's Youtube channel https://youtube.com/@xfern_?si=kuRZWGvBjZP_dYX- 
+
+Fern's Instagram https://www.instagram.com/xfern__/
+
+Fern's Threads https://www.threads.com/@xfern__
