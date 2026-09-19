@@ -7,4 +7,4 @@ Fern's Youtube channel https://youtube.com/@xfern_?si=kuRZWGvBjZP_dYX-
 
 Fern's Instagram https://www.instagram.com/xfern__/
 
-Fern's Threads https://www.threads.com/@xfern__
+Fern's Threads https://www.threads.com/@xfern
